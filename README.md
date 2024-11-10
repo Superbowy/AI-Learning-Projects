@@ -9,3 +9,5 @@ I shared all of them on LinkedIn as I was learning.
 Thank you for checking them out,
 
 Henri Bonamy
+
+LinkedIn : https://www.linkedin.com/in/henri-bonamy/
